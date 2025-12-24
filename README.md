@@ -7,4 +7,4 @@ https://lbb-and-a-little-rabbit.github.io/sxk-channel/
 ```
 
 ## 或点击
-[text](https://lbb-and-a-little-rabbit.github.io/sxk-channel/)
+[小快之家](https://lbb-and-a-little-rabbit.github.io/sxk-channel/)
